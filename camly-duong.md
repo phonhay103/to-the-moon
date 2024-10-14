@@ -28,7 +28,7 @@
   - [Debank](https://debank.com/profile/0x7833411b2e793054ef5967a6b1acba37911b6680)
 ![image](https://github.com/user-attachments/assets/646d021f-2687-488f-94f4-33985126da97)
 - https://www.fxcmvietnam.com/insights/camly-coin
-- https://www.youtube.com/watch?v=vURA8l6r6a4
+- [Đầu tư BĐS xuyên biên giới với blockchain | Camly Duong & Cris.D Trần | Blockchain Economy EP 04 - VIETSUCCESS](https://www.youtube.com/watch?v=vURA8l6r6a4)
 
 ## White Paper
 ![image](https://github.com/user-attachments/assets/da5aa67d-d4c3-4b64-8f8e-095bad194df1)
