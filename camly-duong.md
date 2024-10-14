@@ -1,7 +1,6 @@
 - https://www.fxcmvietnam.com/insights/camly-coin
 - https://thuvienphapluat.vn/ma-so-thue/cong-ty-tnhh-camly-duong-mst-0315376398.html
 - https://www.youtube.com/watch?v=vURA8l6r6a4
-- 
 
 ## Social
 - Telegram: https://telegram.me/camlycoin9999
@@ -18,3 +17,5 @@
   - Liquidity: $23K
   - Volume: $206
 ![image](https://github.com/user-attachments/assets/5c4dedb5-456c-4e91-a35b-2724be953939)
+![image](https://github.com/user-attachments/assets/da5aa67d-d4c3-4b64-8f8e-095bad194df1)
+![image](https://github.com/user-attachments/assets/dde990ec-6bbd-41d1-be71-d60c00d44c27)
